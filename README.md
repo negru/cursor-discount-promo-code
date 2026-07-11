@@ -115,3 +115,6 @@ Whether you're a professional developer, student, startup founder, or hobbyist, 
 https://cursor.com/referral?code=ELIICI1NH42U
 
 **New users only. Discount applies to the first month of any eligible paid plan.**
+
+**Source Link:**
+Source: https://negraru.com/articles/cursor-promo-code-2026-50-off-your-first-month-of-pro
